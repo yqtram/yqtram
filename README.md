@@ -1,4 +1,4 @@
-### Nice to meet you, I'm Yvonne 🤗
+### Nice to meet you! I'm Yvonne 🤗
 
 ## Tech Stack
 
